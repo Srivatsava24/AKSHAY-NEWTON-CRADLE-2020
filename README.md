@@ -1,1 +1,2 @@
-# AKSHAY-NEWTON-CRADLE-2020
+# AkshayNewtonCradle2020
+AkshayNewtonCradle2020
