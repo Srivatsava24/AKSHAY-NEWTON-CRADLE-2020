@@ -1,2 +1,0 @@
-# AkshayNewtonCradle2020
-AkshayNewtonCradle2020
